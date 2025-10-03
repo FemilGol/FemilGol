@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **golfemil445@gmail.com**
 
-- 📄 Know about my experiences [resume link](resume link)
+- 📄 Know about my experiences 
 
 - ⚡ Fun fact **I am funny😎**
 
